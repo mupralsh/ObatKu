@@ -1,0 +1,2 @@
+# ObatKu
+Privacy Policy
